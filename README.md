@@ -5,7 +5,6 @@
 
 - How to reach me **paulagnik9@gmail.com**
 
-- Know about my experiences [https://shorturl.at/XEl3R](https://shorturl.at/XEl3R)
 
 - Fun fact **Sea otters hold hands while sleeping so they do not drift apart**
 
